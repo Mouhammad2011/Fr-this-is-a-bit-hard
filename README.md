@@ -1,1 +1,1 @@
-# Fr-this-is-a-bit-hard
+# Styled page
